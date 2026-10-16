@@ -1,0 +1,1 @@
+# aikatsu-hairetsu-memo
